@@ -1,1 +1,0 @@
-# ahmedallanisoftcatalyst.github.io
